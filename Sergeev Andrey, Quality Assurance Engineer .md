@@ -4,6 +4,7 @@
 
 **Контактная информация**  
 Email: coolkot.ey@yandex.ru
+Telegram: @Rylanor8240896
 
 ## Обо мне
 
